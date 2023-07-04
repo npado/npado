@@ -1,1 +1,1 @@
-# readme draft©
+# readme draft
